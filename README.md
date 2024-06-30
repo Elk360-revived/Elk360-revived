@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me: U DONT
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Earth’s rotation is changing speed.
 
 <!---
 Elk360-revived/Elk360-revived is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
